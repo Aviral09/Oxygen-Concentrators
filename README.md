@@ -13,7 +13,7 @@ Here, I have compiled a list of oxygen concentrators available specific to DELHI
 * https://oxygen-concentrator-oxygen-equipment-supplier.business.site/ <br/>
 RENT | BUY | Call 09013118642, 09810061827
 
-* Oxygen Cylinder Oxygen Concentrator CPAP BIPAP Rent & Sale, 
+* Oxygen Cylinder Oxygen Concentrator CPAP BIPAP Rent & Sale <br / >
 RENT | BUY | Address: Bhagat Singh Market, Gole Market, New Delhi, Delhi 110001 | Call 099682 54721
 
 * https://www.oxygencylinderonrent.com/service/philips-respironics-everflo-oxygen-concentrator <br />
@@ -25,7 +25,7 @@ RENT | BUY | Address: B-1, Vishal Tower, Janakpuri, District Centre, New Delhi| 
 * Oxygen Concentrator on Rent <br />
 RENT | Address: Homeland Healthcare, Block G, Connaught Place | Phone: 09899305644
 
-* Oxygen Concentrator
+* Oxygen Concentrator <br/>
 RENT | BUY | Address: J7/43 Second Floor, Rajouri Garden, New Delhi | Phone Number not found
 
 * https://www.oxygenconcentratordelhi.in/ <br/>
@@ -71,7 +71,7 @@ BUY | WA, Call +91-9810325728 | Address : 144 1st floor DDA Office complex, Cycl
 * https://www.supermedicare.in/philips-oxygen/portable-oxygen-concentrator/Philips-SimplyGo-Oxygen-Concentrator <br />
 %%% BUY | In Stock | Call For Price +91 9953302344
 
-* https://adageshop.com/product/respironics-simply-go-mini-portable-oxygen-concentrator/
+* https://adageshop.com/product/respironics-simply-go-mini-portable-oxygen-concentrator/ <br/>
 %%% BUY | WhatsApp us : 09899226536
 
 * https://www.indiamart.com/proddetail/philips-simplygo-portable-oxygen-concentrator-buy-now-pay-later-at-zero-cost-emi-21354196291.html <br />

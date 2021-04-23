@@ -1,10 +1,12 @@
 # Oxygen-Concentrators
 
+Refer this website for a comprehensive list of all vendors  city wise [http://oxygentimes.com/](http://oxygentimes.com/) <br/>
+
 Delhi has a major Oxygen Cylinder Supply Problem right now and due to restricted border problems etc outside Delhi suppliers are not able to help.
 
-If you can afford Oxygen Concentrators they're the next best alternative for oxygen cylinders. They cost 40,000+ But can be rented for cheaper. Please ensure you are giving Oxygen in right volume. Most Doctors usually start Oxygen flow at 2 Liters per hour. However, it is strongly advised to refer/consult your doctor.
+If you can afford Oxygen Concentrators they're the next best alternative for oxygen cylinders. They cost 40,000+ but can be rented for much much cheaper. Please ensure you are giving Oxygen in right volume. Most Doctors usually start Oxygen flow at 2 Liters per hour. However, it is strongly advised to refer/consult your doctor.
 
-Here, I have compiled a list of oxygen concentrators available specific to DELHI. I've made sure each of these suppliers have Delhi offices so that irrespective of border issues they can help you.
+Here, I have compiled a list of oxygen concentrators available specific to DELHI. I've made sure each of these suppliers have Delhi offices so that irrespective of border issues they can help you. This list only includes IN STOCK options and is updated twice a day.
 
 % - Expensive <br />
 %% - More Expensive <br />
